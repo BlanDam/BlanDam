@@ -1,0 +1,3 @@
+- 👋 Hi, I’m Taylor
+- 🐛 Finally excepted technology and the world of computers into my life and excited for the journey ahead!
+- 🧠 The more I learn, the more ideas I have for projects. (post projects soon)
